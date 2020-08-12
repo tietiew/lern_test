@@ -1,2 +1,2 @@
 # lern_test
-self-study is difficult
+hhhh
